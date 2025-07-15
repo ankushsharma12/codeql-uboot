@@ -35,3 +35,4 @@
 ### 💬 Quote That Drives Me:
 > “Start from zero, stay consistent — and win one step at a time.”
 
+thanks

@@ -28,7 +28,7 @@
 ---
 
 ### 🔗 Connect with Me
-[![Instagram](https://img.shields.io/badge/-@_ankushsharma___-E4405F?style=flat&logo=instagram&logoColor=white)](https://www.instagram.com/_ankushsharma___?, ankushsharma6248@gmail.comigsh=aTIzYXg2ZnRzZDd5)
+[![Instagram](https://img.shields.io/badge/-@_ankushsharma___-E4405F?style=flat&logo=instagram&logoColor=white)](https://www.instagram.com/_ankushsharma___?.comigsh=aTIzYXg2ZnRzZDd5)
 ---
 
 ### 💬 Quote That Drives Me:
